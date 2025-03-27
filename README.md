@@ -1,2 +1,2 @@
 # 11digit.py
-all support me plzz🥺
+Fuck the system
